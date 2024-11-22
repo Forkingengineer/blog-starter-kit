@@ -1,9 +1,7 @@
 ---
 title: "Dynamic leisure and hospitality"
-excerpt:
-The Beauty of handling time management  in a world of never ending posdibilities is tbe stuff of a good life story.
+excerpt: "The Beauty of handling time management  in a world of never ending posdibilities is tbe stuff of a good life story"
 
-"Lorem ip consectetur adipiscing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua. Praesent elementum facilisis leo vel fringilla est ullamcorper eget. At imperdiet dui accumsan sit amet nulla facilities morbi tempus."
 
 
 coverImage: "/assets/blog/dynamic-routing/cover.jpg"
