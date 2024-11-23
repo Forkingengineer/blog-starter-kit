@@ -1,6 +1,6 @@
 ---
-title: "Dynamic leisure and hospitality"
-excerpt: "The Beauty of handling time management  in a world of never ending posdibilities is tbe stuff of a good life story"
+title: "Dynamic leisure and hospitality ideation"
+excerpt: "Navigating environments of continuos innovation and management in tbe ways people curate and spend personal time.Introducing the concept of personal and group time"
 
 
 
