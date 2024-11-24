@@ -41,7 +41,7 @@ That “timeline” that precedes immediately before launching an anything;-Befo
 That time the question lingered ;Surely,I can run for office,.before telling your buddy later in the day;Guess who is running for governor- I am paraphrasing a former vice president .
 
 
-## Lorem Ipsum
+## To sum it up
 
 This is an ongoing tale and i will surely cap this off another day .when that time comes i will bombard you with anotherstory .
 
