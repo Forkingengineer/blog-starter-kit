@@ -13,11 +13,36 @@ ogImage:
   url: "/assets/blog/dynamic-routing/cover.jpg"
 ---
 
-okay fellas,i  am going to tell you a story.
-Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua. Praesent elementum facilisis leo vel fringilla est ullamcorper eget. At imperdiet dui accumsan sit amet nulla facilities morbi tempus. Praesent elementum facilisis leo vel fringilla. Congue mauris rhoncus aenean vel. Egestas sed tempus urna et pharetra pharetra massa massa ultricies.
 
-Venenatis cras sed felis eget velit. Consectetur libero id faucibus nisl tincidunt. Gravida in fermentum et sollicitudin ac orci phasellus egestas tellus. Volutpat consequat mauris nunc congue nisi vitae. Id aliquet risus feugiat in ante metus dictum at tempor. Sed blandit libero volutpat sed cras. Sed odio morbi quis commodo odio aenean sed adipiscing. Velit euismod in pellentesque massa placerat. Mi bibendum neque egestas congue quisque egestas diam in arcu. Nisi lacus sed viverra tellus in. Nibh cras pulvinar mattis nunc sed. Luctus accumsan tortor posuere ac ut consequat semper viverra. Fringilla ut morbi tincidunt augue interdum velit euismod.
+
+The cycle of curiosity.
+
+.Before I start anything here,there's a random saying I heard  about being honest with yourself or rather trying to sync with the object of your motivation.
+“If the rhymes are not rhyming -and you keep rhyming;it had better be worth the rhyme”…..From the unknown poet.
+
+Full disclosure;In the case of this article, when I invoke the memory of the unknown poet,please understand that I am only looking through the mirror,noting what i see from the reflection and as a result mostly referencing myself.I am also alluding to a harbored fleeting uncertainty perambulating through the netherworlds of consciousness that is neither held as possessed knowledge or administered as actual fact.In other words -my undecided  feelings.
+
+Essentially,I believe the saying is about being confident in your thoughts and or pursuits and stacking that up against the idealized expectation mapp.If you have to hold still,you had better not hold longer than is necessary or run the risk of your pursuit being ineffectual. 
+
+An anthology of conscious thought.: Before starting something.
+
+My writing shall be calibrated in the manner of days -preceding the idiomatic D- Day.The moment everyone gets to launch the object of what it is they are baking to friends , acquaintances-the world.
+
+I am talking about myself mostly here .So get ready;-a drumroll please;
+Rr
+
+
+Day one.
+I know it sounds cliche,but when that Eureka moment strikes-The traffic seems to grind to a halt,the sky may seem to change its color and the heart may seem to work overtime.This is my anachronistic way of saying; human nature  has tagged you -catch that breath please.
+
+That “timeline” that precedes immediately before launching an anything;-Before that proposal that got rejected;leaving you between the netherworlds of happiness and sadness or that proposal that got accepted; leaving you so poetic ,you thought you were “the blissful canopy of happiness personified”.-
+
+
+That time the question lingered ;Surely,I can run for office,.before telling your buddy later in the day;Guess who is running for governor- I am paraphrasing a former vice president .
+
 
 ## Lorem Ipsum
 
-Tristique senectus et netus et malesuada fames ac turpis. Ridiculous mus mauris vitae ultricies leo integer malesuada nunc vel. In mollis nunc sed id semper. Egestas tellus rutrum tellus pellentesque. Phasellus vestibulum lorem sed risus ultricies tristique nulla. Quis blandit turpis cursus in hac habitasse platea dictumst quisque. Eros donec ac odio tempor orci dapibus ultrices. Aliquam sem et tortor consequat id porta nibh. Adipiscing elit duis tristique sollicitudin nibh sit amet commodo nulla. Diam vulputate ut pharetra sit amet. Ut tellus elementum sagittis vitae et leo. Arcu non odio euismod lacinia at quis risus sed vulputate.
+This is an ongoing tale and i will surely cap this off another day .when that time comes i will bombard you with anotherstory .
+
+Till then
